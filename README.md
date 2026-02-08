@@ -3,4 +3,5 @@
 <br/>
 <br/>
 <br/>
-<p align="center">jeremy
+<p align="center">jeremy<br/>
+<p align="center">stop looking at my readme and follow me 
