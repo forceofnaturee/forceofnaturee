@@ -16,9 +16,16 @@ hey there ! you can call me jeremy , or scout. 'm a heavy scout fictionkin, and 
 i really like ta talk about my interests, like baseball, or you guessed it, TF2! i also REALLY like nerdin' out about them, so i'll always be open ta dump info about em! 
 <br/>
 <p align="center">
+  <br/>
+  <br/>
+  <br/>
+  <br/>
 psst.. if ya read this far, thanks! maybeeee sign my ata? :-)
 <br/>
 <br/>
 <br/>
+  <br/>
+  <br/>
+  <br/>
 <p align="center">
 blinkies 'n stamps are meant ta be 'ere but ill do em later
