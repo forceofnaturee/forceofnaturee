@@ -27,5 +27,4 @@ psst.. if ya read this far, thanks! maybeeee sign my ata? :-)
   <br/>
   <br/>
   <br/>
-<p align="center">
-blinkies 'n stamps are meant ta be 'ere but ill do em later
+
