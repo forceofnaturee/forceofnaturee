@@ -2,7 +2,7 @@
 <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_2a1e8ea606f46c39df71a23484208506_a8fce6d7_400.webp" width=250">
 <br/>
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=forceofnaturee&color=red&style=plastic&label=BONK!&abbreviated=true">
+<img src="https://komarev.com/ghpvc/?username=forceofnaturee&color=red&style=plastic&label=heads+ive+batted+in!&abbreviated=true">
 <br/>
 <p align="center">
 " I run , they run , everybody run run ! And we're all just havin' fun. "
