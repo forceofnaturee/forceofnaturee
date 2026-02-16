@@ -14,7 +14,11 @@ hey there ! you can call me jeremy , or scout. 'm a heavy scout fictionkin, and 
 <br/>
 <p align="center">
 i really like ta talk about my interests, like baseball, or you guessed it, TF2! i also REALLY like nerdin' out about them, so i'll always be open ta dump info about em! 
+  <br/>
 <br/>
+  <p align="center">
+    I AM THE SPEEDINGBULLET GOD!!!!!!!!!!!!!!!!!!!
+    <br/>
 <p align="center">
   <br/>
   <br/>
