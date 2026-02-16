@@ -49,4 +49,3 @@ psst.. if ya read this far, thanks! maybeeee sign my ata? :-)
 <img src="https://file.garden/aSd5lebnTCh3RN_v/github/tumblr_662e42078bebddd4a230b78d3c5edeea_b2804e25_540.webp" width=150">
 <img src="https://file.garden/aSd5lebnTCh3RN_v/github/tumblr_430b9cb117f5a40927a5827a3f9d48fc_9a13ba5b_250.webp" width=150">
 <img src="https://file.garden/aSd5lebnTCh3RN_v/github/tumblr_d4e61f7c948f040bd3aeeb09561da1d9_e6f23afe_400.webp" width=150">
-<img src="https://file.garden/aSd5lebnTCh3RN_v/github/tumblr_3722560eb6b33667919cfad65c04f621_919b8d90_500.gif" width=20">
