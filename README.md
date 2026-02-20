@@ -24,7 +24,7 @@ i really like ta talk about my interests, like baseball, or you guessed it, TF2!
   <br/>
   <br/>
   <br/>
-psst.. if ya read this far, thanks! maybeeee sign my ata? :-)
+psst.. if ya read this far, thanks! maybeeee sign my ata :-)
 <br/>
 <br/>
 <br/>
