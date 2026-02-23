@@ -17,7 +17,7 @@ i really like ta talk about my interests, like baseball, or you guessed it, TF2!
   <br/>
 <br/>
   <p align="center">
-    I AM THE SPEEDINGBULLET GOD!!!!!!!!!!!!!!!!!!!
+    sniperspy fans iwec,,,yhghghnghjhhhhh
     <br/>
 <p align="center">
   <br/>
