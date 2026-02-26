@@ -17,7 +17,7 @@ i really like ta talk about my interests, like baseball, or you guessed it, TF2!
   <br/>
 <br/>
   <p align="center">
-    ship-wise, i mainly ship mediscout, rarely speedingbullet, and sniperpyromedic 😯 but all in all, my ships change, i can see myself doin' a little bit'a everythin! except sniperspy, bleh, iwec
+   sniperspy iwec,,,,,,,, im watchin yu
     <br/>
 <p align="center">
   <br/>
