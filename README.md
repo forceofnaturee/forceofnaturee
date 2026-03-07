@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_2a1e8ea606f46c39df71a23484208506_a8fce6d7_400.webp" width=250">
+<img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_2a1e8ea606f46c39df71a23484208506_a8fce6d7_400.webp" width=300">
   <br/>
   <br/>
   <br/>
