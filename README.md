@@ -4,7 +4,7 @@
   <br/>
   <br/>
   <p align="center">
-    <img src="https://file.garden/aSd5lebnTCh3RN_v/github/glitter-text.gif" width=250">
+    <img src="https://file.garden/aSd5lebnTCh3RN_v/github/glitter-text.gif" width=90">
 <br/>
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=forceofnaturee&color=red&style=plastic&label=heads+ive+batted+in!&abbreviated=true">
