@@ -1,10 +1,10 @@
 <p align="center">
-<img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_2a1e8ea606f46c39df71a23484208506_a8fce6d7_400.webp" width=300">
+<img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_2a1e8ea606f46c39df71a23484208506_a8fce6d7_400.webp" width=250">
   <br/>
   <br/>
   <br/>
   <p align="center">
-    <img src="https://file.garden/aSd5lebnTCh3RN_v/github/glitter-text.gif" width=90">
+    <img src="https://file.garden/aSd5lebnTCh3RN_v/github/glitter-text.gif" width="450">
 <br/>
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=forceofnaturee&color=red&style=plastic&label=heads+ive+batted+in!&abbreviated=true">
