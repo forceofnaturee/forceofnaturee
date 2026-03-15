@@ -15,24 +15,11 @@
 <br/>
 <br/>
 <p align="center">
-hey there ! you can call me jeremy , or scout. 'm a heavy scout fictionkin, and i type in ways dat kind of resemble speakin' like him. im mostly offtab or off roleplayin' on an island if 'm not hangin' out with either of my partners, so if ya wanna talk you can always whisper me!! (always open for c+h too.. nudge nudge) please note 'm real awkward at first, but i always warm up. 
-<br/>
-<p align="center">
-i really like ta talk about my interests, like baseball, or you guessed it, TF2! i also REALLY like nerdin' out about them, so i'll always be open ta dump info about em! 
-  <br/>
-<br/>
-  <p align="center">
-   sniperspy iwec,,,,,,,, im watchin yu
-    <br/>
-<p align="center">
-  <br/>
-  <br/>
-  <br/>
-  <br/>
-psst.. if ya read this far, thanks! maybeeee sign my ata :-)
+no noodles all peas
 <br/>
 <br/>
 <br/>
+  remaking this,,
   <br/>
   <br/>
   <br/>
